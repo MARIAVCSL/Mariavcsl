@@ -1,5 +1,5 @@
 # 💫 About Me:
-Me chamo Maria Eduarda, tenho 17 anos, nasci em Americana/SP e sou aprendiz de Soluções Digitais na bosch, Campinas/SP.<br>°👩‍🎓Cursei técnico em T.I por 3 anos na ETEC de Americana<br>°👩‍💻Encerro o curso de DS pelo SENAI "Roberto Mange" no segundo semestre de 2025.<br>°💻Cursando Analise e Desenvolvimento de Sistemas <br>°🐕Curiosidade: amo minhas doguinhas Mel e Amora <3
+Me chamo Maria Eduarda, tenho 17 anos, nasci em Americana/SP e sou aprendiz de Soluções Digitais na bosch, Campinas/SP.<br>°👩‍🎓Cursei técnico em T.I por 3 anos na ETEC de Americana<br>°👩‍💻Encerro o curso de DS pelo SENAI "Roberto Mange" no segundo semestre de 2025.<br>°💻Cursando Analise e Desenvolvimento de Sistemas <br>°🐕Curiosidade: amo minhas doguinhas Mel e Amora <3<br>°Namorada do Lucas💍
 
 
 ## 🌐 Socials:
